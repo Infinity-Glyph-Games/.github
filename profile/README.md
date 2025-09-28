@@ -1,12 +1,12 @@
-## Hi there 👋
+## Hi there We're Infinity Glyph Games!
 
-🎮 Indie Dev Studio | Hungary 🇭🇺
+🎮 An Indie Dev Team 
 
 We are a small indie game development team based in Europe, Hungary.
 
 🛠 Founded:
 
-November 1, 2023
+November 1, 2023 by: @antalervin19
 
 🔗 Join Our Community:
 
